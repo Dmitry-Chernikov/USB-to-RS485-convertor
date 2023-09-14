@@ -1,1 +1,1 @@
-По мативам этой статьи https://www.rlocman.ru/shem/schematics.html?di=106938
+По мотивам этой статьи https://www.rlocman.ru/shem/schematics.html?di=106938
